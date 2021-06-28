@@ -1,4 +1,4 @@
-- 👋 Hi, I’m SAAD REHMAN, A WEB-DEVELOPER IN PROGRSS 💖
+- 👋 Hi, I’m SAAD REHMAN, A WEB-DEVELOPER IN PROGRESS 💖
 - 👀 I’m interested in Developing good looking and Responsive websites 🤞
 - 🌱 I’m currently learning Everything 😁
 - 💞️ I’m looking to collaborate on everything related to coding,developing,video editing.
